@@ -24,4 +24,4 @@ https://tabletopaudio.com/
 ------
 
 Se quiser me agradecer por reunir, organizar e disponibilizar as músicas, siga e ajude a divulgar o Dados Críticos!
-linktr.ee/dadoscriticos
+https://linktr.ee/dadoscriticos
