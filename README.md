@@ -19,3 +19,9 @@ https://www.youtube.com/user/Vindsvept
 https://www.youtube.com/channel/UCGxVX35l9Tbd10OJTj-isqw
 ► Tabletop Audio
 https://tabletopaudio.com/
+
+
+------
+
+Se quiser me agradecer por reunir, organizar e disponibilizar as músicas, siga e ajude a divulgar o Dados Críticos!
+linktr.ee/dadoscriticos
